@@ -1,4 +1,4 @@
-# Hi, I'm Sarah Halverson 🌿
+# Hi, I'm Sarah Halverson 🪷
 
 **Data Analyst & Front-End Developer** · San Antonio, TX · Open to Remote
 
